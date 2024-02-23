@@ -5,13 +5,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=yousrarkib&label=Profile%20views&color=0e75b6&style=flat" alt="yousrarkib" /> </p>
 
-- 🔭 I’m currently working on **Pong**
+- 💐 I’m currently working on **♥ Pong ♥**
 
-- 🌱 I’m currently learning **♥ java, python, php ♥**
+- 🌺 I’m currently learning **♥ java, python, php ♥**
 
-- 📫 How to reach me **yousrarkib05@hotmail.com**
+- 🌼 How to reach me **yousrarkib05@hotmail.com**
 
-- ⚡ Fun fact **I love hamster🐹**
+- 🩷 Fun fact **I love hamster🐹**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
