@@ -11,7 +11,7 @@
 
 - 🌼 How to reach me **yousrarkib05@hotmail.com**
 
-- 🩷 Fun fact **♥ I love hamster ♥🐹 **
+- 🩷 Fun fact ** I love hamster 🐹 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
