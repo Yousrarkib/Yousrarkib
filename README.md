@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Pong**
 
-- 🌱 I’m currently learning **Java-python-php**
+- 🌱 I’m currently learning **♥ java, python, php ♥**
 
 - 📫 How to reach me **yousrarkib05@hotmail.com**
 
